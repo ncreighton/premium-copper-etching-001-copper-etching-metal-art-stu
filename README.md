@@ -1,0 +1,2 @@
+# premium-copper-etching-001-copper-etching-metal-art-stu
+Stop losing track of your etching recipes, design iterations, and client orders in a messy studio. This Notion template is your central command for copper etching and metal art—no more scattered notes or forgotten formulas.  This template solves the chaos of managing multiple etching projects, chemical inventories, and client communications. It’s t
